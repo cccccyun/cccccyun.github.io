@@ -1,1 +1,2 @@
-# cccccyun.github.io
+# 极客资源站
+彩虹旗下正版授权网站
